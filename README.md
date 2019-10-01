@@ -9,4 +9,4 @@ The article talks about how the majority of universities today are teaching stud
 I find this article interesting because I think students need to be prepared for both a job in a startup or a job in a large tech company. It isnt always the case that students can land a job in a large tech company fresh out of college, but without having these skills that startups are looking for, they are also not able to land a job in a startup company. 
 
 
-Good work!
+Good work !!
